@@ -1,1 +1,1 @@
-judge age particularly base with rule closely stream bag worker queen failed cry cowboy instant
+fully breakfast safe unusual shallow thick whatever widely collect decide couple all remain paint smallest
