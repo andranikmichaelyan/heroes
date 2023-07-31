@@ -1,1 +1,1 @@
-individual value series shine giant average place gold ought lift nearby than noon political handsome
+indicate nails become lying very chapter goes nation went gather wave tip imagine happily base
