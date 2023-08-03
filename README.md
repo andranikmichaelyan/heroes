@@ -1,1 +1,1 @@
-heat did total stared store myself scared southern safe warm huge just search voyage same
+sides direct extra whose establish planet information goes camera locate all we warn steel route
