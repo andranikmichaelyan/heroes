@@ -1,1 +1,1 @@
-exist bush thumb star perfect fully rocky dream ready flower dangerous one bread breeze care
+shut fox speak consonant equator attention valley knowledge realize shelter chapter closely help practice plant
