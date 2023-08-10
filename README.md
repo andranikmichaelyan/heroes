@@ -1,1 +1,1 @@
-shut fox speak consonant equator attention valley knowledge realize shelter chapter closely help practice plant
+continued wear spell old band same sister only great repeat great spring stems silent smaller
