@@ -1,1 +1,1 @@
-pupil wheat wooden anyone second pain sent goose zebra congress better highest eventually kind upward
+sometime burst book thread soon passage spin famous lesson wave work truth poet seeing percent
