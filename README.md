@@ -1,1 +1,1 @@
-sometime burst book thread soon passage spin famous lesson wave work truth poet seeing percent
+concerned rough wheel notice spend pine particularly wonder chose shoulder too studying shelf art dawn
