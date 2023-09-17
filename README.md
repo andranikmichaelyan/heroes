@@ -1,1 +1,1 @@
-outer neighborhood room tide setting higher paragraph offer drawn driving step cow deer piano knew
+card mine buffalo nose traffic beautiful near began should expect height friend average particular share
