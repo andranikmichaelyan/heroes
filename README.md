@@ -1,1 +1,1 @@
-done prize instrument home experience dust lesson certainly sport could long chief how tail clay
+thy has tightly coffee wave widely growth zulu eat south change skin he seat aware
