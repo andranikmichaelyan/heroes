@@ -1,1 +1,1 @@
-thy has tightly coffee wave widely growth zulu eat south change skin he seat aware
+shirt rhyme prize fifteen threw teeth verb fairly crew bad biggest carried store pick mass
