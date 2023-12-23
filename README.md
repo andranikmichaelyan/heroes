@@ -1,1 +1,1 @@
-coming chose shop joy blew belt moving mirror cry pride national chief good region list
+send anybody spin clay look horse quite planned long cookies soap rise now activity is
