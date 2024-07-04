@@ -1,1 +1,1 @@
-thin capital exclaimed string instance choose answer company shelter wolf step additional swam sunlight plane
+saw directly team simplest measure mile useful angle strength together clothes tip frozen rich greatly
