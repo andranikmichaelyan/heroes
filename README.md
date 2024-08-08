@@ -1,1 +1,1 @@
-modern be differ numeral tiny only negative color hole roof fast member six heart wise
+sky hurt hearing sport wind cloud gather regular fairly shore oxygen softly corn sit disease
