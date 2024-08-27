@@ -1,1 +1,1 @@
-sky hurt hearing sport wind cloud gather regular fairly shore oxygen softly corn sit disease
+dark carry adventure studied too camp itself answer lay want trick dot pack back pink
